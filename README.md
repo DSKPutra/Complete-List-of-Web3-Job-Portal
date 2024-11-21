@@ -1,5 +1,5 @@
-# Awesome Web3 Jobs 🚀
-🤩 Want to get job in WEB3 ? 💸
+🚀 Complete List of Web3 Job Portal by Dea Saka Kurnia Putra 🚀
+🤩 Want to get job in Web3 ? 💸
 
 😃 If you're looking for job opportunities in the exciting and rapidly growing world of web3 and blockchain. 💫
 
